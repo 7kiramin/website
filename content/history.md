@@ -33,3 +33,7 @@ A l’any 2010 l’ETSETB implanta el nou pla d’estudis de Graus TIC.  Malaura
 Amb l’objectiu d’evitar l’enfonsament de la vida universitària les noves generacions de Distorsió prenem mesures. Intentem fer-nos veure tant dintre del Campus Nord com a les xarxes socials i la resta d’Internet, a més d’intentar diversificar tot allò que publiquem adaptant-ho als gustos dels nous estudiants de telecos.
 
 Aquesta es la Distorsió que coneixes, amb una tirada d’uns 200 exemplars i dos números a l’any, on tenim els dibuixos bojos i caòtics d’Eric i JM i els articles musicals i software lliure de Jafarr.
+
+# Cinquena etapa: Primer impacte
+
+És l'any 2025 quan estem escrivint això, la revista quasi mor perduda en el temps com llàgrimes en la pluja. De l'any 2018 fins el 2022 no es va publicar cap número,
