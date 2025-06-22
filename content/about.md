@@ -15,7 +15,7 @@ Dues vegades a l’any, un número per cuadrimestre.
 
 ### On es ven Distorsió?
 
-El dia de la publicació es munta una parada a la Plaça Telecos del Campus Nord, on es venen les revistes. També és possible comprar-les al nostre despatx, el 103 de l’Edifici Omega.
+El dia de la publicació es munta una parada a la Plaça Telecos del Campus Nord, on es venen les revistes. També és possible comprar-les al nostre despatx, el S207 del casal de l'estudiantat, al soterrani del B4.
 
 ### Qui l’escriu?
 
@@ -33,7 +33,7 @@ Sí, pots publicar encara que no siguis membre. Consulta l’apartat “Col·lab
 
 ### Com puc aconseguir números antics?
 
-El millor es passar personalment pel despatx (Omega-103). De vegades, però, en muntar una parada de venda, també n’oferim alguns.
+El millor es passar personalment pel despatx (B4-S207). De vegades, però, en muntar una parada de venda, també n’oferim alguns. Desgraciadament hem hagut de desfer-nos de la majoria de nombres antics a causa de les retallades d'espai al canviar de despatxos.
 
 ### Porta gaire feina?
 
@@ -45,7 +45,7 @@ Distorsió és, sobre tot, una associació universitària i una colla d’amics.
 
 ### Què cal fer per formar part de l’Associació?
 
-Presentar-se al despatx Omega-103 amb ganes de fer amics.
+Presentar-se al despatx B4-S207 amb ganes de fer amics.
 
 ### On sou, com us puc contactar?
 
